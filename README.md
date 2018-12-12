@@ -1,2 +1,2 @@
 # hello-world
-gg 
+Oi blyat eto pisdec , ya nihuya ne ponimau 
